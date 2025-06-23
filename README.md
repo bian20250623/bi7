@@ -37,7 +37,7 @@
 
 点击访问：<a href="https://hj-1295.pages.dev/">海角</a>
 
-点击访问：<a href="https://cg11-1.pages.dev/">黑料社91</a>
+点击访问：<a href="https://cg33-1.pages.dev/">51重口</a>
 
 点击访问：<a href="https://cg65-01.pages.dev/">91爆料</a>
 
